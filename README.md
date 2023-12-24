@@ -1,0 +1,1 @@
+Smartphones have become indispensable personal devices, the number of smartphone users has increased dramatically over the last decade. Today’s smartphone application markets host an ever increasing number of applications. App users is the task of grouping users based on how they engage with the app
